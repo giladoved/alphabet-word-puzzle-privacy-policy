@@ -1,0 +1,1 @@
+# alphabet-word-puzzle-privacy-policy
